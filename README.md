@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **upendranaidu333@gmail.com**
 
-- ⚡ Fun fact **I an Algo Trader.**
+- ⚡ Fun fact **I an Stock Market Trader.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
